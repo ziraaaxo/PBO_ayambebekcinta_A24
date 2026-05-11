@@ -1,4 +1,4 @@
-### Kelompok Ayam Bebek Cinta - PBO A'24 ⸜(｡˃ ᵕ ˂ )⸝♡
+# Kelompok Ayam Bebek Cinta - PBO A'24 ⸜(｡˃ ᵕ ˂ )⸝♡
 
 ## Anggota Kelompok
 1. Intan Alfara Audia (2409106008)
